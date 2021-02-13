@@ -1,2 +1,0 @@
-# pemula
-pemula
